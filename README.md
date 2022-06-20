@@ -1,3 +1,3 @@
 Gyanendra Raul Sandjaya <br>
-Internship at PT Daya Rekadigital <br>
-Surakarta
+L200190044 <br>
+Universitas Muhammadiyah Surakarta
